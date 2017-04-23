@@ -1,1 +1,0 @@
-# hirakida.github.io
